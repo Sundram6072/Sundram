@@ -1,2 +1,0 @@
-# Sundram
-Hello friends 👋👋
